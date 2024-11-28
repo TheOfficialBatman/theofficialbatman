@@ -16,7 +16,7 @@
 Ꮺ. 𝙳𝚎𝚏𝚒𝚊𝚗𝚝𝚕𝚢 𝙽𝚘𝚝 𝙱𝚛𝚞𝚌𝚎 𝚆𝚊𝚢𝚗𝚎 𝙰𝚝 𝙰𝚕𝚕. 
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤ![image](https://github.com/user-attachments/assets/ffdfae72-af2d-499e-a618-b8f56e5277eb)
+ㅤㅤㅤㅤㅤㅤㅤㅤ![image](https://github.com/user-attachments/assets/ffdfae72-af2d-499e-a618-b8f56e5277eb)
 
 
 
